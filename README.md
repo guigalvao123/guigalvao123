@@ -6,7 +6,7 @@
 
 🔭 Atualmente procurando uma vaga!
 
-❤️ Se você estiver interessado em conversar comigo, fique à vontade para entrar em contato!
+👋 Se você estiver interessado em conversar comigo, fique à vontade para entrar em contato!
 
 ----
 
